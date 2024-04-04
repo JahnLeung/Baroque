@@ -1,6 +1,10 @@
 # Baroque
 My Baroque Period
 
+![IMG_7128](2023/IMG_7128.JPG)
+2023-12-17 香港旺角
+---
+
 ![IMG_0050](2023/IMG_0050.JPG)
 ![IMG_0051](2023/IMG_0051.JPG)
 2023-11-25 深圳甘坑
